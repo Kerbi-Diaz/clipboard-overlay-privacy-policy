@@ -1,0 +1,1 @@
+# clipboard-overlay-privacy-policy
